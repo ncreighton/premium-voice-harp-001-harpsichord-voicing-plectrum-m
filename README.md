@@ -1,0 +1,2 @@
+# premium-voice-harp-001-harpsichord-voicing-plectrum-m
+Stop wasting hours swapping plectra and hoping for the right sound—this Notion guide gives you a repeatable, data-driven method to choose the ideal plectrum material for every note and register.  The Harpsichord Voicing Plectrum Material Selection Guide solves the trial-and-error chaos by providing a structured database of material properties, soun
